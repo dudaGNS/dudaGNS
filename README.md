@@ -2,5 +2,4 @@
 - Olá,meu nome é **Eduarda Novacki**,sou Estudante do colégio Estadual São Mateus 
 -👀 *Meu e-mail de contato é eduarda.novacki.silva@escola.pr.gov.br
 - 🌱 Tenho alguns conhecimentos em linguagem no scratch,e cada dia mais aperfeiçoando isso.
-- 💞️ escutar musica,desenhar...
 - 📫 SMS-PR
